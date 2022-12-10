@@ -12,7 +12,7 @@
 ##  Professional profile: ##
 * Restaurant crew member at McDonald's (1.5 years).
 * >https://www.mcdonalds.com/
-* Cook, and after 1.5 years sous-chef at  "Druzya" restoran.
+* Cook, and after 1.5 years sous-chef at  "Druzya" Restaurant.
 * >https://druzya.by/
 * At the moment, I have been working for 6 months as an Asian cuisine chef in Georgia.
 * >https://www.instagram.com/g.garden.rest/
